@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JJCSAMA
-- 👀 I’m interested in feminism
+- 👀 I’m interested in feminism.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on one thing i am interested in.
 - 📫 How to reach me ichbinskyy@gmail.com
